@@ -4,7 +4,7 @@
 - 💞️ I'm currently a beginner in this field
 - 📫 How to reach me ...
 
-you can reach me thpough 
+you can reach me through 
 email id - gtmaran20012gmail.com
 
 <!---
